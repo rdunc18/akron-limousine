@@ -1,24 +1,14 @@
 # README
 
-This README would normally document whatever steps are necessary to get the
-application up and running.
+<h1><strong>General: Rejoice your joy on the go - Find a Limo!!!</strong></h1>
+At some point or another, we get a reason to celebrate something special. Whether it be a birthday or anniversary or wedding or graduation day - there are many such occasions that call for such a celebration. As you can imagine no two people think the same way when it comes to the type of celebration; some like it to be a closed,  personal event and some want it to be lavish and celebrate with everyone. Throwing a party is a thing of the past now; people are a lot more advanced and believe in a grand bash rather than a routine party. The new trend that has picked up pace is that of choosing a luxury vehicle and enjoying time with near and dear ones while on the move. Consider enjoying riding on a limousine with your friends where you can take pleasure with both drinks and food. There are numerous limousine firms that offer <a href="http://chauffeured-limousines.com"><strong>Limo rental</strong></a> services with pre defined packages or you have the option to get one customized for you personally too.
 
-Things you may want to cover:
+<img class="alignnone size-full wp-image-400" src="http://chauffeured-limousines.com/wp-content/uploads/2017/11/limousine-rental.jpg" alt="limousine rental" width="259" height="194" />
 
-* Ruby version
+Limousines in itself are elegance; they make you feel on top of the world so imagine in case it's your graduation day and you're already excited so why don't you increase this pleasure and celebrate your graduation in style. Akron Limousine Service is a well known name among the targets since they know pretty well the fine art of providing pleasure to their customers as a part of their Limousine rental services. It is really an acceptable truth that once you decide to party then there is no end to you getting high so it is essential that you choose a service provider who assures you of the safety while on the go from the beginning till the end.
+<h2><strong>Think different - rejoice your special day in a Limo!!!</strong></h2>
+The wedding is without question the most important event in your life and you leave no stone unturned to really make it special and memorable. The routine things are that can come to everyone’s mind while preparing and planning for the wedding but hardly few individuals consider carrying it out with a difference. We, at Akron Limousine Service, let you make a difference to the routine marriage ceremony by offering you the very best <a href="http://akronlimo.org/"><strong>Wedding Limo</strong></a> so that you can have gala of a time before, after and during the wedding too. Not only it is the wedding when you can hire a Limo but you can hire it for the bachelorette party as well you can also just surprise your partner by taking him/her on a wine tour after marriage.
 
-* System dependencies
+Weddings are special and so is the relation, we have chosen to enter into. The minute you feel that it’s time to get hitched to the one you love - your life changes since after that point it's always two bodies, one soul living under the same roof. It is the bride and the groom or say husband and wife who will stay together till the end and all others continue entering and exiting our lives. With that said make that day the most special day. Rent a limo!!
 
-* Configuration
-
-* Database creation
-
-* Database initialization
-
-* How to run the test suite
-
-* Services (job queues, cache servers, search engines, etc.)
-
-* Deployment instructions
-
-* ...
+Don't forget to follow us and our new posts. It's easy, follow us at <a href="https://business.google.com/b/114113977867418350211/posts/l/05943992369234669772?hl=en">Akron Limousine Service</a> for all of our updates.
